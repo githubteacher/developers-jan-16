@@ -6,3 +6,6 @@
 - South Mountain Reservation
 - Eagle Rock Reservation
 
+
+### Great Places To Eat
+- Eagle Rock Diner
