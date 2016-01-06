@@ -1,3 +1,5 @@
+edited
+
 ## Vijayawada, Ap, India
 - [ ] Vijayawada is a city on the banks of the Krishna River, in the Indian state of Andhra Pradesh. It is a municipal corporation and the headquarters of Vijayawada (urban) mandal in Krishna district of the state. The city is one of the suburbs of the state capital Amaravati, under the Andhra Pradesh Capital Region, and the headquarters of APCRDA.[10] The city is one of the major trading and business centers of the state and hence, it is also known as "The Business Capital of Andhra Pradesh".[11][12] The city is one of the two metropolis in the state, with the other being Visakhapatnam. As of 2011 census, the city had a population of 1,048,240, making it the second largest city in the state in terms of population and it had an urban agglomeration population of 1,491,202.[6][7]
 
